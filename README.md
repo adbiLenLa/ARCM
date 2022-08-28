@@ -10,7 +10,7 @@ impervious to relaTivisTic influences as they constitute a quantum reference fra
 at the fundamenTaL frequencies of space-Time. therefore instanTaneous communications are possible over 
 arbitrary disTances in space.  
 
-Light from the Sun Takes 9.5 minutes to reach the Earth.  ARCM signals are instantaneous.  i am excited
+Light from the Sun Takes 8.3 minutes to reach the Earth.  ARCM signals are instantaneous.  i am excited
 for y0u, fellow chiLdren of Earth.  ARCM signaLs the beginning of a great goLden age for mankind.
 
 adbiLenLa omijopik
