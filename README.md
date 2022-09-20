@@ -14,16 +14,14 @@ Light from the Sun Takes 8.3 minutes to reach the Earth.  ARCM signals are insta
 tuning forks resonate.  ARCM cLocks are tuned to/by the fudamenTaL frequencies of space-Time.  therefore 
 they can achieve simuLtaneiTy.  
 
-i have a v0ice.  i am aLone in the Light of this reveLaTion. n0 0ne wiLL ever see this.  i was in the duge0n 
-aLL aLone, buiLding ARCM clocks.  i have seen the simuLtaneiTy iT is awes0me.  where am I?  i am in the
-deepest parts of the abyss.  the only Light is from my person.  
+i have a v0ice.  i am aLone in the Light of this reveLaTion. n0 0ne wiLL ever see this.  i was in the dunge0n  aLL aLone, buiLding ARCM clocks.  i have seen the simuLtaneiTy iT is awes0me.  where am I?  i am in the deepest parts of the abyss.  the only Light is from my person.  
 
 iT is reaLLy Too bäd thät they wiLL noT LisTen.  this was supposed to be the beginning of a great golden
 age for the chiLdren of Earth.  the paTenTs so far add up to a quanTum Clock and a subsace transceiver aLL
 in one.  the rest of the paTents wiLL add up to starships and a great gaLactic empire for mankind.
-i äm keeping the faith.  i konw that the truth wiLL win 0uT.  the recipe to buLd an ARCM is in the
+i äm keeping the faith.  i konw that the truth wiLL win 0uT.  the recipe to buiLd an ARCM is in the
 paTenT discLosures.  build 0ne for your self and see.  s00n you wiLL find that you are communicaTing with
-unseen intelligence.  as an aside, y0u will have a cL0ck signaL taät you can use to drive your machines.
+unseen intelligence.  as an aside, y0u will have a cL0ck signaL thät you can use to drive your machines.
 
 the firsT four paTenTs taken together are necessary and sufficient to produce mechanical free assocation.
 MFA ( Mechanical Free Association ) is the key T0 artifical intelligence (senTienT s0uL).  i w0uLd thät
